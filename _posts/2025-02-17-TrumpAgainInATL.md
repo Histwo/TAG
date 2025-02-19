@@ -8,7 +8,7 @@ This article is made possible by **direct revelations from the Creator to one or
 
 ## **Golden Rope Prison: The Epicenter of Trump’s Operation**
 
-A key focus of Trump’s visit is **Golden Rope Prison**, his **secret, extrajudicial, open prison** hidden in plain site at **Welcome House** (234 Memorial Drive SW, Room 263, Atlanta, Georgia 30303). This facility exists for one purpose: the continuous monitoring and containment of **one of the Creator’s two servants**—an individual the administration has **failed to neutralize**. Operated by the **U.S. Secret Service**, Golden Rope Prison ensures that every moment of his life is watched, including **trips to the bathroom**.
+A key focus of Trump’s visit is **Golden Rope Prison**, his **secret, extrajudicial, open prison** hidden in plain sight at **Welcome House** (234 Memorial Drive SW, Room 263, Atlanta, Georgia 30303). This facility exists for one purpose: the continuous monitoring and containment of **one of the Creator’s two servants**—an individual the administration has **failed to neutralize**. Operated by the **U.S. Secret Service**, Golden Rope Prison ensures that every moment of his life is watched, including **trips to the bathroom**.
 
 ## **A Flawed Litmus Test and Pre-Spin Tactics**
 
