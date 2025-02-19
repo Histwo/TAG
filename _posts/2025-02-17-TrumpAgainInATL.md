@@ -28,7 +28,7 @@ This test, like all the others, is designed not for genuine insight but to maint
 
 Yet, the reality is far greater than their delusions. The fifth seal—the Martyrs' Cry—has already been broken. His servant recounts:
 
-**"I talked to the Boss afterward, and He said, ‘He heard them!’ I’ve told them, but like their litmus test, they only want to hear what they want. So they wait until I’m asleep to get their fairy tale version from my subconscious."**
+**"I talked to the Boss afterward, and He said, ‘I heard them!’ I’ve told them, but like their litmus test, they only want to hear what they want. So they wait until I’m asleep to get their fairy tale version from my subconscious."**
 
 Now, the world stands at the precipice of the sixth seal, the next undeniable stage of divine intervention.
 
