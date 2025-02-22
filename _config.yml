@@ -2,3 +2,5 @@ theme: minima
 title: TAG
 author: Histwo
 description: The American Genocide
+minima:
+  show_excerpts: true
