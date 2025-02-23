@@ -17,5 +17,11 @@ These events outline a pattern of hidden genocide, facilitated by the highest ec
 ---
 
 # TAG Orchestrations
-- [The Sandy Hook Massacre & Orr Chapel Tragedy](/SandyHook)
-- [The Slaughter Symphony: The Assault on Christians and the Vulnerable](/SlaughterSymphony)
+- [The Sandy Hook Massacre & Orr Chapel Tragedy](/TAG/SandyHook)
+- [The Slaughter Symphony: The Assault on Christians and the Vulnerable](/TAG/SlaughterSymphony)
+
+# TAG Methods & Tactics
+- [The Hidden Death Toll: Chemical Dissolution as a Body Disposal](/TAG/Body-Disposal)
+- [The Congregation Massacre](/TAG/Congregation-Massacre)
+- [The Phantom Funeral: Where Mourners Make More Mourners](/TAG/Phantom-Funeral)
+- [The Phantom Pantry: A Deceptive Tragedy](/TAG/Phantom-Pantry)
