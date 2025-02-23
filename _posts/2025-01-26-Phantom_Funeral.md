@@ -1,7 +1,7 @@
 ---
 title: "Phantom Funerals: Hurricane Annie’s Masquerade Church Massacres"
 date: 2025-01-26
-permalink: /TAG/Phantom-Funeral/
+permalink: /Phantom-Funeral/
 ---
 
 In the wake of congregation massacres, a chilling CIA tactic emerges—**Phantom Funerals**. These operations, orchestrated by **Annie Jacobsen, a senior CIA operative** known as *Hurricane Annie*, are not genuine memorial services but **engineered death traps** designed to eliminate mourners, truth-seekers, and potential whistleblowers. Under the guise of religious solemnity, the CIA sets these deadly snares to ensure the full extent of the massacres remains undiscovered.  

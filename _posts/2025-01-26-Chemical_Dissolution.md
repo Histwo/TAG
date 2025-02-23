@@ -1,7 +1,7 @@
 ---
 title: "The Hidden Atrocity: Chemical Dissolution as a Body Disposal Method During The American Genocide (TAG)"
 date: 2025-01-26
-permalink: /TAG/Body-Disposal
+permalink: /Body-Disposal
 ---
 
 In the shadows of history’s greatest atrocities, methods of concealment often prove as horrifying as the crimes themselves. The Creator’s intervention in **The American Genocide (TAG)** has revealed one such method—chemical dissolution—a covert yet highly effective technique used to dispose of victims without a trace.  

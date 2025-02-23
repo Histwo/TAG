@@ -1,7 +1,7 @@
 ---
 title: "The Phantom Pantry Operation: A Deceptive Tragedy"
 date: 2025-01-26
-permalink: /TAG/Phantom-Pantry/
+permalink: /Phantom-Pantry/
 ---
 
 In the shadows of community service and benevolence, a sinister operation has been unfolding, one that disguises itself under the guise of charity but leads to unthinkable outcomes. Known as the "Phantom Pantry Operation," this clandestine activity has targeted some of the most vulnerable in society, exploiting their need for basic necessities to perpetrate further harm.
