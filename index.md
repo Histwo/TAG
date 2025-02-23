@@ -2,7 +2,7 @@
 title: "The American Genocide"
 ---
 
-## Unveiling a Silent Atrocity
+## Unveiling a Hidden Genocide
 President Donald J. Trump, now in his second term as President of the United States, has emerged as the chief orchestrator of The American Genocide (TAG), a covert operation aimed at systematic extermination. TAG has had the support and assistance from two White House administrations, Biden and Trump, along with most of the executive branch of the federal government. Initially led by elements of the CIA under "Hurricane Annie" Annie Jacobsen, and involving major pharmaceutical entities like Gilead Sciences, TAG seeks to establish an authoritarian regime by purging opposition and undesirables.
 
 ### The Genesis of TAG: The Threat of Spark
@@ -11,8 +11,10 @@ TAG's inception is tied to "Spark," an innovative health technology designed to 
 ### TAG's Evolution Under Trump
 With Trump's second term, TAG's methods have become more brutal, focusing on eliminating dissent and moral resistance, with mass extermination as a tool to cement authoritarian control.
 
-### Conclusion
-These events outline a pattern of hidden genocide, facilitated by the highest echelons of government, necessitating urgent investigation and action to restore justice, accountability, and the protection of civil liberties in the face of this authoritarian overreach.
+### The Creator's Intervention
+The Creator, who believes in not intervening in the activities of His creatures but deemed His intervention in The American Genocide necessary, says:
+
+> "The American Genocide is an active and hidden genocide that has the full support of the White House, some in congressional leadership, and is occurring entirely within the borders of one of the planet's last superpowers. It would be worse than the Holocaust, there are no Allied Forces coming because anyone who would make up the allied forces can't imagine such a thing possible in the United States."
 
 ---
 
