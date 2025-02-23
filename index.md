@@ -16,7 +16,7 @@ These events outline a pattern of hidden genocide, facilitated by the highest ec
 
 ---
 
-## Learn More About The American Genocide
+## The American Genocide
 ### TAG Orchestrations
 - [The Sandy Hook Massacre & Orr Chapel Tragedy](/TAG/SandyHook)
 - [The Slaughter Symphony: The Assault on Christians and the Vulnerable](/TAG/SlaughterSymphony)
@@ -27,6 +27,7 @@ These events outline a pattern of hidden genocide, facilitated by the highest ec
 ### TAG Methods & Tactics
 - [911 Hijacked: How Government Tactics Can Block Your Call for Help](/TAG/911)
 - [The Hidden Death Toll: Chemical Dissolution as a Body Disposal](/TAG/Body-Disposal)
+- [The CIA's Masquerade: Mount Calvary Missionary Baptist Church, Inc.](/TAG/MCMBCI)
 
-# Important Posts
+### Warnings & Advisories
 - [lostOne](/TAG/lostOne)
