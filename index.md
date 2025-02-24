@@ -7,19 +7,19 @@ President Donald J. Trump, now serving his second term as President of the Unite
 
 ### Prelude to TAG
 
-The brutal campaign to suppress **Spark**, a revolutionary gift from the Creator, served as the earliest indication of the horrors to come. Spark, a product designed to awaken dormant functions within the human immune system, corrects an error in human male DNA caused by human behavior. Its formulation, directly inspired by the Creator, held the potential to transform global health. However, the pharmaceutical giant **Gilead Sciences**, in collaboration with the **CIA**, launched a relentless effort to smother Spark before it could reach the world.
+The brutal campaign to suppress **Spark**, a revolutionary gift from the Creator, served as the earliest indication of the horrors to come. Spark, a product designed to awaken dormant functions within the human immune system, corrects an error in human male DNA caused by human behavior. Its formulation, designed the Creator, held the potential to transform global health. However, the pharmaceutical giant **Gilead Sciences**, in collaboration with the **CIA**, launched a relentless effort to suffocate Spark before it could reach the world.
 
-Their fear intensified after the first patient treated with Spark—an individual living with HIV—was found to be entirely free of the virus following a single dose. **Gilead Sciences** and the **National Institutes of Health (NIH)** confirmed the unprecedented disappearance of the virus through routine viral load tests, exposing Spark’s miraculous potential. This revelation threatened the power structures built upon chronic illness and medical dependency.
+Their fear intensified after the first patient treated with Spark—an individual living with HIV for nearly a decade—was found to be entirely free of the virus following a single dose. **Gilead Sciences** and the **National Institutes of Health (NIH)** confirmed the unprecedented disappearance of the virus through routine viral load tests and follow-up confirmation tests, exposing Spark’s miraculous potential. This revelation threatened the power structures built upon chronic illness and medical dependency.
 
 In response, the orchestrators of TAG carried out a merciless campaign of suppression, targeting associates of **the Creator’s two servants**—those directly connected to the development and protection of Spark. Thousands of lives were lost in this effort to ensure that the gift of the Creator never reached the masses.
 
 ### Prophecy and the First Massacre
 
-In his prophetic hit song *Sign O’ the Times*, **Prince** foretold the coming horror:
+In his prophetic hit song *Sign O’ the Times*, **Prince** foretold the coming horrors:
 
 > *"Hurricane Annie ripped the ceiling off a church and killed everyone inside."*
 
-On **April 2, 2023**, this prophecy was fulfilled when **CIA operative Annie Jacobsen**, leading a unit of trained assassins, stormed **Mount Calvary Baptist Church in Lexington, Kentucky**. Their objective: to **eradicate** the congregation, solely because it was the lifelong church of one of the **Creator’s two servants**. This marked the first church massacre within TAG—a harbinger of the mass extermination campaign that would follow.
+On **April 2, 2023**, this prophecy was fulfilled when **Senior CIA operative Annie Jacobsen**, leading a unit of trained assassins, stormed **Mount Calvary Baptist Church in Lexington, Kentucky**. Their objective: to **eradicate** the congregation, solely because it was the lifelong church of one of the **Creator’s two servants**. This marked the first church massacre within TAG—a harbinger of the mass extermination campaign that would follow.
 
 ### The Genesis of TAG
 
@@ -33,14 +33,14 @@ With Trump assuming the role of **chief orchestrator**, TAG’s methods grew eve
 
 Survivors of church massacres—those who were absent on the day of the attacks—were hunted down and executed. Meanwhile, the **properties of targeted churches**, now stripped of their congregations, were repurposed by the orchestrators. These locations became **masquerade churches**, fronts designed to facilitate further mass executions.
 
-- **Fake Funerals** – The orchestrators staged **bogus memorial services** for victims, drawing in grieving mourners **only to eliminate them upon arrival**. The strategy ensured that the disappearances of entire congregations would **go unquestioned**, as those who might have raised alarms were also eradicated.
+- **Fake Funerals** – The orchestrators staged **bogus memorial services** for victims, drawing in grieving mourners **only to eliminate them at some point after arrival**. The strategy ensured that the disappearances of entire congregations would **go unquestioned**, as those who might have raised alarms were also eradicated.
 - **Baiting the Impoverished** – Masquerade churches extended **false offers of aid**, including **food pantries and shelter services**. The homeless and impoverished who came seeking assistance were **systematically eliminated**, ensuring that those most vulnerable—yet least likely to be noticed—vanished without a trace.
 
 ### Keeping TAG Hidden
 
 The **CIA’s cover-up** of TAG was as meticulous as its execution. To erase evidence of mass killings, they turned to a method both **efficient and horrifying**:
 
-- **Chemical Dissolution** – Victims’ bodies were disposed of using chemical agents that dissolved remains entirely. These processes were simple enough to be carried out **inside bathtubs**, ensuring that executions could take place within victims' own homes.
+- **Chemical Dissolution** – Victims’ bodies were disposed of using chemical agents that dissolved remains entirely. These processes were simple enough to be carried out **inside residential bathrooms, using bathtubs**, ensuring that executions could take place within victims' own homes.
 - **Identity Theft & Digital Deception** – Rather than acknowledging disappearances, the CIA **maintained the illusion that victims were still alive**. Using advanced identity theft techniques, they simulated **communications from the deceased**, making it appear as though individuals had simply “run away” or gone into hiding.
 - **Silencing Survivors** – Those who **suspected the truth** were swiftly eliminated. Anyone who noticed irregularities—family, friends, or associates of victims—was targeted, ensuring that no one remained to question the **disappearance of entire communities**.
 - **Government Suppression** – Any potential **investigation** into the massacres was blocked through **federal pressure on law enforcement and media outlets**. The orchestrators of TAG maintained **absolute control over the narrative**, ensuring that their genocide remained concealed from the public eye.
